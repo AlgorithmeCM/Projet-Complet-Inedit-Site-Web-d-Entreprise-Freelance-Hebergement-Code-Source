@@ -1,4 +1,4 @@
-Sur notre chaîne YouTUbe, vous aurez chaque semaine du contenu inédit sur Internet.
+Sur notre chaîne YouTube, vous aurez chaque semaine du contenu inédit sur Internet.
 Des Projets Complets 100% Pratiques en Développement Web & Mobile.
 
 ALGORITHME est une Agence Digitale et un Institut de Formation Professionnelle Internationale.
